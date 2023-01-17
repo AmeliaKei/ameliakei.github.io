@@ -23,3 +23,6 @@ Holy Trinity ng Taylor Swift Cult™
 
 ![Deina](https://i.pinimg.com/originals/ba/37/e8/ba37e8c333379530adb07f80ce4f23f0.jpg)
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/6QtnCAFmqOwR75jOOmU7k9?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/14hC5eBiPUxdPa90eCzwrR?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
