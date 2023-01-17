@@ -13,8 +13,8 @@ Holy Trinity ng Taylor Swift Cult™
 
 [Deina](https://www.youtube.com/watch?v=W025XJSqV4A)
 
-![Deina](https://scontent.fmnl25-5.fna.fbcdn.net/v/t1.15752-9/316872559_1358476901223943_534691105502249114_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeG9QT3VBdJwHwRGtuk51ELRXJdX3xpFuyxcl1ffGkW7LJzwx_4qIVsIKSHxm1N0_SiA2tM4zPtkhH7ffbx-zmBC&_nc_ohc=U0ORxg7CH3IAX_05wdb&_nc_ht=scontent.fmnl25-5.fna&oh=03_AdRqzJ8wi8TKrvlXq_pMoy4nwFYs_WCirqzy2Kk80khOOg&oe=63E81411)
+![Deina](https://scontent.fmnl25-3.fna.fbcdn.net/v/t1.15752-9/325645876_1323417238201945_861837754750450145_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeE0QLpJQg91uXiVtVKO_0O0PNu7I2Kr6GQ827sjYqvoZOqj-x4Cm4CaEM5Eyci-RhuCgoynhzMNZBBhAyUi87WH&_nc_ohc=sbsGvIUQkCQAX-GAWKK&tn=crWrz45-F1IxkcIJ&_nc_ht=scontent.fmnl25-3.fna&oh=03_AdRWHIEIen7zBFt_ekS6stwon5xeu6rks7Z-gUD2cgevqQ&oe=63ED5755)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/y-WHM4IKnts?start=4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-
+[augh](<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/1pzvBxYgT6OVwJLtHkrdQK?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>)
